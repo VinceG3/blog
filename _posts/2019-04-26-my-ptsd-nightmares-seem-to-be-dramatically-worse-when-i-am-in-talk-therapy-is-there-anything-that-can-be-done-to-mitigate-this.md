@@ -1,0 +1,7 @@
+---
+layout: post
+title: My PTSD nightmares seem to be dramatically worse when I am in talk therapy. Is there anything that can be done to mitigate this?
+date: 2019-04-26
+---
+
+<p>I personally would focus on caring for yourself physically while you’re going through this process. Let me draw you a picture of what I mean.</p><p>Any time I get sick, I put myself in what I call “therapy mode.” I turn off all the usual patterns in my head that stop me from, say, eating ice cream and pizza. I go to the grocery store and the drugstore and get everything I need and anything I want. Usually I gravitate towards fruits, dairy, and bread, with cookies there if I feel the need to snack. I slow my lifestyle down and don’t do as much. Healing becomes the order of the day, I want all of my body and mind focused on that one goal.</p><p>It doesn’t have to be sickness, any kind of down-in-the-dumps-ness can cause me to take a therapy day or two. I usually don’t take off time from work unless I’m still contagious, but I work more slowly and deliberately.</p><p>This is full-therapy mode, it’s super effective at cutting down periods of sickness. But you might find a more moderate approach working for you. Pay attention to your diet, to your morning routine and afternoon routine and look to eliminate anything that might be unnecessarily stressful, particularly at work. Consider starting an exercise program.</p><p>Work on your body and the mind will follow. An easy thing to forget when processing trauma.</p>

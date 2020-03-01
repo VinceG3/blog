@@ -1,0 +1,7 @@
+---
+layout: post
+title: How do you practice your religion&#47;spirituality effectively&#47;sincerely without it merely being cajolery&#47;coercion, bargaining with the divine for favours, idolatry, superstition or sycophancy?
+date: 2018-03-26
+---
+
+<p>Read scripture. It’s entire purpose is to teach you how to do that. Scripture is full of characters that fall into idolatry or bargaining or superstition and is usually pretty clear on what to do to avoid that sort of thing yourself.</p><p>For example, the Book of Jeremiah contains extensive instruction on how to spot false prophets. The gist is that false prophets tell you what you want to hear, whereas real prophets prophecies actually come true. If you keep believing in false prophets because it would put you out of your way to do what the real prophets say, then you’re no longer walking with God.</p><p>The story of David and Goliath teaches the difference between ego and humility, bravery and cowardice. How to act, when to speak up, how far to go when faced with a situation where you’re just not sure, this is what 1 Samuel 17 teaches.</p><p>The Hindu scriptures do the same thing, of course I am less familiar with them so I don’t feel comfortable giving examples.</p><p>Every religion has their own approach to these issues. Jews consider following the letter of the laws of God to be more important than Christians do. But you can find a common thread running through religions and their approaches to reckoning with the divine.</p>

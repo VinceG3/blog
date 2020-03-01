@@ -1,0 +1,7 @@
+---
+layout: post
+title: What do guys find attractive about a woman&#39;s personality?
+date: 2017-06-25
+---
+
+<p>A2A, interesting question, and interesting time in my life to be answering it. I am currently finally in the last stages of getting over a long-term crush. It’s forcing me to really get to know myself and what I want.</p><p>The thing I love most about women’s personality is twofold. First, I want a lady who is comfortable with displaying her sexuality openly. A lot of women are very defensive about their sexuality, they worry about what other people will think of them if they do this thing or that thing that they would like to do.</p><p>I want the lady who is just totally unafraid of what small-minded people will think of them.</p><p>The other thing I love about anybody’s personality, but particularly a lady who I want to be romantically involved with, is a growth mindset. I don’t want someone who considers themselves a finished product, what you see is what you get.</p><p>I get really excited, for instance, when I find that a lady I’m into goes to psychotherapy. I am someone who is always trying to get to the next level, and I want a lady who wants to come with me to that next level, not one that is going to dig in her heels and try to stop the train.</p><p>I want a lady who helps herself, who doesn’t expect me to do everything for her.</p><p>If I can find those two things in a woman who I’m also physically attracted to, I will love that woman to the end of days.</p>

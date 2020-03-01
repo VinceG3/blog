@@ -1,0 +1,7 @@
+---
+layout: post
+title: When God cursed Eve for the sin saying ‘man will always rule over you’, what did he really mean?
+date: 2018-08-15
+---
+
+<p>I don’t think there is any hidden meaning here. It means exactly what is said.</p><p>It wasn’t just Hebrew society that was patriarchal at the time, it was every society. We didn’t socially start crawling out of the gutter of patriarchy until maybe 30 years ago. Before then, chivalry involved treating your human property better, not in pretending they’re actual equals. Wives and daughters in those days were essentially property, many many many passages in the Bible reflect this.</p><p>If you want to know why God wouldn’t be more progressive, well, He did what He could. God’s omnipotent, but his aims center around human agency, and if humans want to do something, God’s not going to stand in the way. God never prevents anyone from doing anything, but He will command people to do stuff they don’t want to do. So if society demands patriarchy, remember that most every society structured themselves that way, God’s going to teach and chastise within that frame.</p><p>Asking for 2000s progressiveness from God in dealing with Old Testament Israelites is like asking to teach a four year old advanced trigonometry, their brains just can’t handle the concepts.</p><p>Slowly over the course of Biblical narrative, you can see the slow civilization of the Hebrews. But there was two thousand years of cultural evolution that was needed before we became ready for feminism.</p>

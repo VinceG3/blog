@@ -1,0 +1,7 @@
+---
+layout: post
+title: What&#39;s the most important belief required in order to be in love?
+date: 2017-10-27
+---
+
+<p>I really don’t know, love is too fickle to be nailed down like this. I spent a few years pining over one girl and when it was all said and done, I’m not going to say my love bone “broke,” but I just can’t fall the same way now that I did back then.</p><p>I don’t think it’d even be all that useful to. My mind conjured up a lot of qualities that it supposed this other person had, so that she could fit my idea of how I wanted to live life at the time. When I realized my error, part of me knew I only had myself to blame, another part still wants to blame her anyway. We remain friends but we’re no longer close.</p><p>I’m moving towards a more polyamorous outlook. Polyamory forces you to look at love through a different lens. What’s the difference between loving someone and being in love with them? There seems to be a subtle difference, but I don’t even want to try to tease out the difference, just to say that whatever it is appears to be at the core of my journey through the world of love.</p><p>No, I’ve found that getting rid of beliefs is way more useful to finding love than coming up with more. We want love to be special. Maybe in order to really feel and appreciate it, love shouldn’t be special at all. You want the time you spend together to be special, not conjure up all kinds of meaning in being together that just gets in the way.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: This girl asked me if I think she is pretty and I answered her honestly and said &quot;No, but somebody else might&quot; then she started swearing at me and calling me nasty names. Why is she angry at me when she asked for my opinion?
+date: 2018-01-26
+---
+
+<p>Because you didn’t grasp the reason why she asked you that.</p><p>She was interested in making sexytime with you and was wondering if you felt the same. You said no and insulted her in the same sentence! She was injured by the ‘no’, and then further insulted by the ‘but somebody else might’.</p><p>Answering her question with both clarity and tact would have required you to not be an ignorant butthole, but it could have been done. First off, you could have just told her ‘no’ without any supplementary advice. This would have conveyed the message without being patronizing.</p><p>Imagine if you asked me to trust you for something. Say you wanted to housesit for me while I went on vacation. Let’s say I didn’t trust you to look after my house, I thought you would invite all your buddies over for a party and whatever would happen.</p><p>I could say two things to you. One of those things was “no thanks, I already got someone in mind.” The other was “hah! I wouldn’t trust you to pick up dog shit in my yard, much less watch my home while I’m not there!”</p><p>Which one of those responses would make you mad?</p>

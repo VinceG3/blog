@@ -1,0 +1,7 @@
+---
+layout: post
+title: What are the limits of science in describing consciousness, identity, or the subjective?
+date: 2017-11-27
+---
+
+<p>Science, as you might imagine, does not really have much to offer concerning the subjective, as the entire idea is to discover the <i>objective</i>. And since consciousness and identity are both extremely subjective things, science can’t really tell us much about those either.</p><p>But consciousness is localized in the brain, so science can tell us things about consciousness that are universal to all humans. If it can be set up in a repeatable experiment, science can inquire on it. So stuff like how the brain acts under the influence of alcohol, or the more common disorders, science can, with enough repetition, divine interesting facts.</p><p>I’ve read enough about the early history of psychology to know that the way people studied the mind back then was pretty much completely terrible. But the modern psychological industry was based on that early work.</p><p>It’s best to look at science as a work in progress, not as some kind of perfect process.</p><p>That said, again, if what you’re trying to get at is totally subjective, then science can’t study it at all. You’ll have to gather your own evidence and come to your own conclusions. That’s what I do, day in and day out. My chosen area of inquiry, individual consciousness evolution, is incredibly difficult to study scientifically. It’s all insight and meditation and hunches. I find it meaningful, even if most materialists would scoff at my findings.</p>

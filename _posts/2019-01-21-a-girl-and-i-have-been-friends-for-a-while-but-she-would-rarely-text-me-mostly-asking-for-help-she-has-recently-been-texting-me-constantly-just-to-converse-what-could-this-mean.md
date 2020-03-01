@@ -1,0 +1,7 @@
+---
+layout: post
+title: A girl and I have been friends for a while but she would rarely text me, mostly asking for help. She has recently been texting me constantly, just to converse. What could this mean?
+date: 2019-01-21
+---
+
+<p>Generally when people are having problems, they aren’t thinking clearly about the consequences of their actions. Women in particular are socialized to ask for help and not solve their own problems. So they wind up sacrificing friendship for help.</p><p>Later when they feel they are in a better place, they’ll realize what they’ve been doing, and want to rectify that by being friendlier. She may consider this attention she’s giving you as a fond “thank you” for your previous help.</p><p>It could also be the beginnings of romance. The amount and quality of the feelings you are able to share together generally make the difference between friendship and romance when there’s attraction involved. If you are stilted and hung-up over things, that’s going to make itself clear in your interaction to her, even though you won’t see it yourself, and she won’t ‘go there’.</p><p>But if you are open and honest, and still funny and warm and non-threatening, the feelings a person feels generally slowly moves from friendly to romantic. I speak generally because women are people too and they have their own hangups. If you’re not only open, honest, funny, warm, non-threatening, but also smart and self-aware, you won’t put her up on a pedestal and so you’ll be able to see her hangups too.</p>

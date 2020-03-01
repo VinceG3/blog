@@ -1,0 +1,7 @@
+---
+layout: post
+title: Does God have a physical body according to the Bible?
+date: 2018-06-17
+---
+
+<p>Yes. Biblical cosmology has the world being totally flat with giant sea monsters guarding the edges. God lives in a world just above ours separated by a vast physical barrier called the firmament, through which Jesus punched through somehow when He Ascended into Heaven. He walked on earth with Adam in the Garden of Eden and spoke to him as if He were just a man.</p><p>You can read this one of two ways while still being a believer. You can accept these particular words of the Bible at face value. This puts you into the weird category of people that the rest of the world calls flat-earth creationists. I personally believe that around 90% of them are actually atheists playing a long-term trolling game on creationists.</p><p>The second thing you can do is to realize that the ancient Hebrews had to minister to unbelievably simple people that just couldn’t understand anything more complicated than <b>physical</b> imagery. Have you ever had a dim relative and needed to persuade them of something? You need to put it in language they can understand. Scripture is precisely that, written works intended to speak to <i>anyone</i>. What’s the real truth of scripture? Well, the Bible had to lie, but that doesn’t mean that you can’t find the real truth by reading more deeply into the allegory.</p>

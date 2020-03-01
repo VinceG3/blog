@@ -1,0 +1,11 @@
+---
+layout: post
+title: What is spirituality and who is a spiritual person?
+    
+        
+    
+https:&#47;&#47;youtu.be&#47;h5RuvUc7jTA
+date: 2018-03-06
+---
+
+<p>Spirituality is the human mind’s approach to dealing with uncertainty. There is no way for anyone to know for sure “what’s out there” yet we are constantly wondering. Spirituality allows us to use our own minds as, if not exactly ‘evidence’, at least as a platform for belief.</p><p>Materialists reject this as a matter of course. They are distrustful of the mind, so they seek comfort in physicality and build their philosophy around that.</p><p>Naturally, the domains of materialism and spirituality must meet somewhere, and in fact there is a large space of things in the world that aren’t quite spiritual, and at the same time aren’t exactly materialist either.</p><p>This is the world of narrative fiction. It doesn’t have the woo woo dogma that drives materialists nuts, and isn’t so drearily dull to turn spiritualists off. Stories are the basic building blocks of spirituality.</p><p>Stories allow the mind to escape itself. You go on a little journey with someone else in a world that plays by different rules. Things you’d like to experience in your own life but can’t, well you can do that with stories.</p><p>I said above that spirituality allows us to use our minds as a form of evidence, well, the kind of truth that narratives embody forms the base for that evidence. This is the world of <i>allegorical</i> truth. Spiritualists prioritize this kind of truth and trust it more than scientifically-derived truth.</p><p>Further beliefs, such as the belief in Jesus’s resurrection, are built on top of these stories.</p><p>It’s all the same ‘stuff’ under the hood. Mental structures that constrain the search space for solutions to problems. Spirituality <i>frees</i> the mind to consider a much wider range of possibilities. Whereas physicalist mindsets lock possibility to a tiny subset.</p><p>It’s interesting to me that everyone needs somewhere to go to be free. I was talking to a materialist friend of mine yesterday and was amused at his willingness to believe in sweeping conspiracies. He can’t countenance Jesus, but aliens and bankers controlling the globe are fair game.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: What is the most enlightening question you know of?
+date: 2017-07-05
+---
+
+<p>Interesting question. Enlightenment cannot be generalized. I can give you <b>a</b> question that <b>I</b> found particularly enlightening, but I cannot give you a question specifically engineered to create enlightenment in most people who contemplate it.</p><p>Questions are way more alive than answers, because they embody pure possibility. Quora is a veritable font of wonderful questions. Would-be teachers seize upon certain questions and, through collective effort of adding their perspectives, create a pool of knowledge which then drives a small delta in the mindset of the community.</p><p>People not invested in following the zeitgeist are generally the ones contributing most of the interesting questions. This is because the function of the community is to bring knowledge and perspective to the people who need it. If it were just the teachers all answering each other’s questions all the time, that would take away from the magic of Quora.</p><p>In other words, for someone to be enlightened, their mind has to change. The choice of question has to come from that unenlightened mind. The question, while being more alive than the answer, is only alive if it is in the mind of someone who <i>needs the answer.</i> The person whose mind actually stands to be enlightened by a particular answer or all the answers.</p><p>That is the most enlightening question possible, the question that someone needs the answer to.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why is original sin a concept in Christianity?
+date: 2018-07-17
+---
+
+<p>The idea that humanity is inherently wicked is not a new concept created by Christianity. It’s a running theme in the stories of the Hebrew Bible. Judaism invented the concept of <i>ethical monotheism</i>, which holds that all <i>morality</i> stems from God. Humans can’t be moral, except by asking God what to do. It’s fairly foundational and it’s rather difficult to imagine a religion based on Abrahamic scripture that doesn’t place great emphasis on the idea that humans would be lost without God.</p><p>Original sin is Christianity’s attempt to explain <i>why</i> humanity is wicked. As Dick Harfield notes, it was not part of the original religion but rather enshrined much later. I’ll note myself that theology of this sort isn’t usually issued by fiat, the ideas have to win acceptance amongst the faithful long before they become theological doctrine. To simply dictate how people believe is just asking for a schism.</p><p>Augustine was exceedingly influential and often controversial but original sin is far from the most controversial of his ideas. The <i>filioque</i>, the addition to the Nicene creed stating that the Holy Spirit proceeds from <b>both</b> the Father and the Son, takes that crown by a large margin, and was a major factor in the East-West Schism, the breaking apart of the Christian Church into the Catholic Church and the Orthodox Church.</p>

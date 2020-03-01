@@ -1,0 +1,7 @@
+---
+layout: post
+title: I want to break up with my boyfriend, but he just surprised me with a $1,300 holiday. What do I do?
+date: 2017-05-31
+---
+
+<p>How do you know how much it was? Did he tell you?</p><p>*nods to myself while the implications of that sink in*</p><p>I don’t know the specifics of your situation but I’d be pretty darned surprised if he didn’t already know that you guys are on the rocks, and this $1300 holiday is his way of manipulating you.</p><p>Look, the fact that you didn’t want to hurt his feelings was specifically factored into his plans. That’s why it cost that much and it’s why he told you how much it was.</p><p>He sees you as worth $1300 to keep you in his life. Being a guy whose lady friend asks him for a lot of gifts, I’m well aware of what $1300 is in this context. It’s in the range of a lot of money, but isn’t really. I could blow $1300 on a new computer tomorrow if I wanted one. I’d barely even notice it. Whereas you’d have to save for months to afford that.</p><p>The emotional impact does <b>not</b> go unnoticed by manipulators.</p><p>Once you let this sink in, it should be a lot easier to dump his sorry ass. The amount of money means a lot more to you than it does to him. Therefore the guilty feelings are unwarranted and are instead engendered by manipulation. Guys who manipulate you aren’t worth dating.</p><p>Once the cold hard logic of this sinks in, it’s only a matter of time before you find it in you to get rid of him.</p>

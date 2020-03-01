@@ -1,0 +1,7 @@
+---
+layout: post
+title: I was told that I didn&#39;t have one spirit guide - but two. A wolf and a raven. What does this mean? What does this say about me? My future?
+date: 2019-04-16
+---
+
+<p>The spirit world seems to operate in twos. Many many people, when they start perceiving spirits, see that everyone around them has two angels / spirits with them. We just usually perceive one because we’re all basically spiritual babies and just aren’t ready to deal with two yet.</p><p>How they present to you is pretty important. You’re seeing animals, two specific ones. That’s pretty cool. I perceive mine as humans with different kinds of personality archetypes.</p><p>What do you think of when you think about wolves and ravens? What comes to mind? I don’t know if you draw at all, but you may want to explore this new spiritual connection through artwork. Spirit work is creative and generative. Meaning it’s best accomplished in a mind-space of the blank slate.</p><p>Whenever you’re creating, pay brief attention to whatever random thoughts or urges you get. They point at something deeper in yourself that you can elucidate and explore. There’s no end to the journey, just a slow evolution of how you consider yourself as a person and conduct your life.</p><p>Spirit guides do change forms from time to time, so don’t be too surprised if that happens. You can get into meditation and try to visualize them. They may shift around in front of you. Pay attention to the shifts, not just what they shift into but also how.</p><p>And have fun!</p>

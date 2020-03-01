@@ -1,0 +1,7 @@
+---
+layout: post
+title: What can I do to stop wallowing in self-pity and stop having a victim mentality?
+date: 2017-05-13
+---
+
+<p>Stop sleeping. Just stay up as long as you can distracting yourself from getting “proper” rest. Then go to bed when you’re so exhausted that you can’t stay awake.</p><p>There was an article awhile back that said that sleep deprivation works really well for depression. It made me think back to when I was a wee lad and dealing with it. I would naturally just start playing video games or whatever to distract myself and not sleep. Before I knew it a few days had gone by and I’d snap out of it.</p><p>What I think happens is the young mind just goes haywire and the sleep deprivation just gives the obsessive mind just enough rope to hang itself with. When you fall asleep, your brain will clean up the mess you made by staying awake, then in the morning you’ll feel a little better.</p><p>It probably won’t be enough so just do it again. Take care of your daily activities and then spend the rest of the day and night just distracting yourself the best you can.</p><p>Keep going until you just don’t feel like playing video games anymore.</p><p>The trick to this is that you <b>don’t</b> want this to be a sustainable lifestyle. The last thing you want to do is get into a rut where you’re doing your job / school, playing video games, then going to sleep and doing it all over again. You want to be well and truly <i>exhausted</i> by the time you hit the pillow.</p>

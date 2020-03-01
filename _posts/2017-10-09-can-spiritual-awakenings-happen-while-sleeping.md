@@ -1,0 +1,7 @@
+---
+layout: post
+title: Can spiritual awakenings happen while sleeping?
+date: 2017-10-09
+---
+
+<p>No. But it’s really interesting why.</p><p>Your conscious awareness sits atop a mountain. Far down the mountain is stuff like your heartbeat. Further up, but still past your conscious mind is your subconscious. Your subconscious does not have a whole lot of agency and relies on your conscious mind for direction.</p><p>Your subconscious is where spiritual awakenings “germinate.” The things you experience and think about get shuffled around in your subconscious until patterns emerge. They’re then presented to your conscious awareness as epiphanies. A spiritual awakening is just a giant epiphany.</p><p>You can’t have a spiritual awakening while you’re asleep because you need your conscious awareness to be a party to the proceedings. Think about what ‘awakening’ means. Something lying dormant suddenly becoming awake.</p><p>Sure, your subconscious can do the work of building up to an epiphany while you’re asleep. But spiritual awakenings happen over the course of lifetimes and so it wouldn’t really be pertinent to say that it happened while you were sleeping, any more than it makes sense to say that you made money while you were sleeping if you’re on a salary.</p><p>No, the awakening happens when you’re awake. It can’t change your life and your identity if you’re not fully aware of it. And if it doesn’t change your life and identity, it’s not a spiritual awakening.</p>

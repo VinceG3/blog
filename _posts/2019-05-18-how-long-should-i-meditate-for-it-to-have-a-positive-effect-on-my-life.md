@@ -1,0 +1,7 @@
+---
+layout: post
+title: How long should I meditate for it to have a positive effect on my life?
+date: 2019-05-18
+---
+
+<p>Meditation is the process of getting to know your mind by observing what it does when you remove distraction. The key to getting the most out of it is not really what you’re doing <i>inside</i> the meditation, or other such mundane things like how long you’re doing it for, how frequently you meditate.</p><p>Rather, what allows you to get the most from it is moreso <i>what and whether you accomplished what you planned</i>.</p><p>Does that sound strange? How do you plan meditation? Well, this is the purpose of what Buddhists call <i>dharma</i>. Buddhist dharma is a <i>map</i> of reality, a map that you can explore, literally, through meditation.</p><p>The great beauty of Buddhism is that you don’t have to take the Buddha at his word. You can meditate and discover for yourself, even come up with your own dharma maps. Rather than churches, Buddhism has schools, whose jobs it is to share the knowledge they’ve accumulated.</p><p>Work has been done to make Buddhist dharma accessible to Western seekers, so you don’t have to learn Sanskrit. My favorite dharma book is Daniel Ingram’s <a href="https://www.amazon.com/Mastering-Core-Teachings-Buddha-Unusually/dp/1904658407/" data-qt-tooltip="amazon.com">Mastering the Core Teachings of the Buddha</a>.</p><p>One day I hope to release my own.</p>

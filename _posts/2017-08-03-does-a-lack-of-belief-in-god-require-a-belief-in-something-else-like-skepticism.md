@@ -1,0 +1,7 @@
+---
+layout: post
+title: Does a lack of belief in God require a belief in something else, like skepticism?
+date: 2017-08-03
+---
+
+<p>You can simplify this question to: Is belief required to live? To which my answer is, of course! How could it be any different?</p><p>The major questions to life and existence aren’t settled. Nobody’s answers are any better than anybody else’s. Sure, some people might seem to have a more rational view than others <i>at certain times</i>, but there’s always going to be mysteries about life, and one of the biggest is the ultimate fundamental question of metaphysics: Is there such a thing as God?</p><p>You can be more or less dogmatic about this question. You can be dogmatic in that there is a God, and he has exactly these characteristics, and that he lives in this one place called X. Or you can be just as dogmatic in the other direction. No, and all the other things we typically associate with God don’t exist either. This stance is called materialism.</p><p>There are these two extremes, and a vast realm of positions in between them. You have to be somewhere on the continuum, otherwise you don’t have a functioning brain and can’t comprehend the significance of the question. And because nobody’s answers are better than any others’, that stance amounts to <b>belief</b>.</p><p>You can call it whatever you want, but it’s still something you think is true that you can’t be 100% sure of whether it’s actually true or not.</p><p>To be a skeptic is merely to <i>pretend</i> that you’re smarter than someone else.</p>

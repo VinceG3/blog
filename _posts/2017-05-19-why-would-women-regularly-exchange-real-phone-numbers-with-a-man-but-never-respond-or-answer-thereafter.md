@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why would women regularly exchange real phone numbers with a man, but never respond or answer thereafter?
+date: 2017-05-19
+---
+
+<p>Women generally get asked for their number a lot. A lot of them used to put in good faith efforts to be responsive, but have had that courtesy beaten out of them by idiot guys who think that giving them attention makes them entitled to whatever he wants out of her.</p><p>Not giving a number is problematic, lots of guys will get really huffy at a rejection. No amount of politeness helps. Pretending to be interested is the ‘safest’ way out.</p><p>Fake numbers are ‘a’ solution to this problem, but a lot of times women are actually mildly interested in a guy. Giving a fake number irrevocably destroys any possibility of future interaction. With a real number, they can at least listen to your message or read your text so they can decide whether to interact with you further.</p><p>In short, a fake number is an extreme solution to the problem, and rejection is dangerous, and so is a non-starter.</p><p>My solution to this problem has been to basically become Fort Knox. Your average hottie is <b>way</b> more accessible than I am. Good luck getting me to ask for your number, good luck getting me to call it more than once.</p><p>My suggestion to you is to just keep trying, with the caveat that you keep being respectful. If she’s not into being respected then she’s not the one for you anyway.</p>

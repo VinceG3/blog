@@ -1,0 +1,7 @@
+---
+layout: post
+title: How do I achieve enlightenment through meditation when I am having such trouble meditating. I have been at it every morning for over 2 months now and I still can&#39;t even get my mind to settle down. Can anyone help me?
+date: 2018-01-01
+---
+
+<p>Don’t <i>try</i> to make your mind settle down. Instead just watch it. Observe your thoughts, feel each of their unique energy ‘signatures’. If you do this long enough you’ll find the rest of the world will start receding and it’ll just be you and your thoughts. The thoughts will slow down, the act of observing them takes energy away from the thought processes.</p><p>Eventually they’ll cease and you’ll be left with a smooth inner calm. Stay in this state for as long as you can until the thoughts start up again. Then go back to observing them. The thoughts will die again and you’ll get another round of inner calm.</p><p>Keep going through this cycle until you can access the calm state at will. This ability is called <i>access concentration</i>. You can use a visualization aid if you like, a lot of people like to picture a candle flame, but I wouldn’t bother until you achieve access concentration. Just keep throwing a monkey wrench into your mental machinery by watching your thoughts.</p><p>You’ll forget to watch them from time to time, especially in the beginning. When you notice, don’t beat yourself up over it, just go back to watching. You’ll get better with practice.</p><p>Access concentration is the foundation of meditative practice. You won’t get very far without it.</p>

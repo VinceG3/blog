@@ -1,0 +1,7 @@
+---
+layout: post
+title: Do you think a Christian theocracy would become as oppressive as current Islamic theocracies? What would you say to Christians who want a religious government?
+date: 2018-07-06
+---
+
+<p>Christianity already had it’s theocracy. It ruled over all of Europe. States warred with each other, but all paid tribute to the Church. Was it oppressive? That’s a matter of opinion.</p><p>My opinion is that it was too corrupt to ever really aspire to oppression. Oppression is the tool of zealots. Zealotry, of course, has it’s origins in the Bible, during the time of the Second Temple, the Zealots tried to rally all of Judea against Rome. What distinguished the Zealots, and gave the word the meaning it has today, was their willingness to kill their own if they didn’t agree with and support their political goals.</p><p>A lot of Christians, who wanted nonviolent responses to everything, died in this movement. One can look at the political heights of Christendom as the ultimate strength of non-violence and seeking out compromise.</p><p>We can also look at the Catholic Church’s moral failures, as also the legacy of the nonviolent focus. Corruption and vice, Christianity didn’t invent these things, but it does sometimes provide a rich bed that they can take root in.</p><p>Islam is less focused on nonviolence, and more on fighting for justice and righteousness. Whether the <i>jihad</i> is internal or external, it is still a struggle. Where corruption is not tolerated, zealotry and oppression are.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why should we believe the writing of the Bible was inspired by God?
+date: 2018-06-18
+---
+
+<p>You may have meant to ask “how” is the Bible inspired by God rather than “why.” The why is rather self-evident, answered, right there, in the Bible. God wants His wisdom to inspire and motivate people to believe in Him, aspire to be more like Him, and glorify Him.</p><p>The how on the other hand, is more elusive for those coming from rationalist mindsets. But the short answer is, when you share mystic experiences with other people, it makes those experiences seem that much more relevant and useful and sacred and all that.</p><p>If you have a vision, and your neighbor has a similar or even the exact same vision, then that vision will seem to be ‘confirmed’ to be divinely inspired.</p><p>I have my own communication with God. Every Christian does. But to put those communications down as divinely inspired, even when they are, requires a little bit more. The reality is that it’s humans that have a tough time communicating with each other. And the space of things that humans care about is vast.</p><p>It’s easy to find contradictions in the messy world of semantics. We read the Ten Commandments as saying “thou shalt not kill” but the meaning of the word was more akin to “murder,” but for whatever reason ‘kill’ made it into the Bible.</p><p>It takes a lot of study and scholarship to make sense out of the Bible. But you can talk to God today.</p>

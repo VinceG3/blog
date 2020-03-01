@@ -1,0 +1,7 @@
+---
+layout: post
+title: What would a multiverse look like today where Jesus was embraced by the population and taught all he knew?
+date: 2017-07-05
+---
+
+<p>These are the sorts of questions that a good grasp of history will really add color to. Jesus was a Jew, he was borne into the Jewish faith, of Jewish parents, and retained his faith until the day he died.</p><p>The Romans, over a hundred years after Jesus died, took the Jesus myth, which had by then become quite popular amongst a certain subset of Jews, who then called themselves Christian, and codified a new religion around it.</p><p>This question assumes that there is some level of success Jesus <i>could</i> have had that he didn’t actually have. There is no such thing. Jesus was <b>fantastically</b> successful. He <b>was</b> embraced by the population and he <b>did</b> teach all that he knew.</p><p>It’s just that creating a new religion was, and still isn’t, a simple or easy thing. Jesus didn’t have the infrastructure. The only thing Jesus could have done at the time was to add to the existing Jewish religion.</p><p>To posit an existence where Jesus could have done better is not to imagine a different social world, but to posit a completely different level of technology and social organization. Only in modern times can a normal person seriously affect the zeitgeist.</p><p>We’re not in the realm of alternative history anymore, we’re in the realm of science fiction.</p>

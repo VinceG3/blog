@@ -1,0 +1,7 @@
+---
+layout: post
+title: Should I enjoy my youth and have sex with a lot of women, because eventually I will become an unattractive old man?
+date: 2017-05-12
+---
+
+<p>This is kinda like asking, “should I become a millionaire while I still have the energy to do so?” Or as my favorite cartoonist, <a href="https://www.gapingvoid.com/blog/" data-qt-tooltip="gapingvoid.com">Hugh McLeod</a> puts it:</p><img src="https://qph.fs.quoracdn.net/main-qimg-25fc0f09ecbec87ce8554189afbcdcb1.webp"><p>(in her head: “God, when will he just shut up and kiss me already!”)</p><p>Your question is coming from a place of envy and desire. But envy or desire doesn’t get you any ladies. Just wanting to be a millionaire doesn’t make you a millionaire. You have to put in the time and the effort and learn the lessons and really identify with it. If you could have done that, you already would be doing it. It would be so compelling and big and awesome for you.</p><p>Instead you’re asking the question like there’s <i>tons of other things you could be doing right now</i> rather than getting rich or having sex with lots of girls. That’s not the mindset that gets you a ton of ladies. Maybe once you’re rich and successful your success will draw them to you like flies to garbage, but right now there’s something else you’d rather be doing than chasing tail, and you really should just do your best to ignore your dick and go do that.</p><p>Because I’ve had my share of young sex, and I gotta say, it’s pretty dull. It’s not like a music video.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why do theists misrepresent atheism, and then attack that misrepresentation?
+date: 2017-05-04
+---
+
+<p>Because the atheist worldview is not internally consistent, when you try to drill down into precisely how the atheist thinks, eventually you find that they haven’t thought very critically about what it means to build up your entire worldview around <b>not</b> believing in something.</p><p>You don’t want to believe in the God of the Bible, that’s fine. But there is an absolutely <i>huge</i> gulf between not believing in the Bible or God and the positions staked out by atheists. You can make up your own spirituality. You can make up your own God. Hell, you could even come up with your own religion.</p><p>Or if you don’t want to come up with one yourself then you can pick up one of the countless concoctions of Things That Aren’t Really There But We’re Going To Pretend Are Anyway. A friend of mine is active in the Church of the SubGenius, even <i>that’s</i> better than musty old atheism.</p><p>But if you just sit there and try to claim you don’t believe in <b>anything</b>, and form your worldview around that, and make everyone who comes to you engage you purely on the basis of “logic” and “reason,” don’t be surprised when they aren’t satisfied with your expositions on what atheism is. Especially when you start sitting around wondering where the “atheist church” is.</p><p>The world out there is bigger than what you can fit in your head. Failure to see that is <b>illogical</b>, not logical.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: Is self-actualization really possible? What would a self-actualized person be like?
+date: 2018-08-30
+---
+
+<p>Let’s break this term down, shall we?</p><p>There is a self, that is being <i>actualized.</i> Before, presumably, the self wasn’t actualized, now it is. There wasn’t an actual self. So what was the self if it wasn’t actual?</p><p>Hiding, in the background. Waiting for something. There’s a person there, but their self doesn’t really <i>manifest</i>.</p><p>How do you know when you have an actualized self?</p><p>Well, what causes us to not do things we want to do? In three words, fear, worry, and doubt. They fear that they’re not good enough, worry about the consequences of doing things they wan’t to do, doubt that acting the way they want will bring them anything of consequence.</p><p>An actualized person’s self does not let these things stop them.</p><p>Is it possible to eliminate fear, worry, and doubt? I don’t think so. I think it’s quite possible to act regardless of those things. And to make a habit of never letting those things stop them.</p><p>This person, who has conquered fear, who has conquered worry, who has conquered doubt, can be said to be in full possession of the self. Being in possession of said self, they can then act in ways to manifest it so that others can see it. This person can wear their wants and the why behind those wants right there on their sleeve, so others can freely see and react to it.</p><p>Will they react positively or negatively to the freely-worn self?</p><p>Who gives a fuck?</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: What kind of worship service, in any faith tradition, would appeal to someone who is &quot;spiritual but not religious&quot;?
+date: 2018-06-17
+---
+
+<p>Religion is just spirituality writ large. Worship services scale from the individual all the way up to what they call a “mass.” All the people at the service have to be on the same page enough to believe that they’re accomplishing their spiritual goals by being there.</p><p>The other thing that has to distinguish a worship service, other than size, is <i>seriousness</i>. There’s no real room for meta-analysis in a ritual, the whole point is to conjure up a transcendent experience, so any humor that’s present can’t be coming from individuals, that has to be divine. The forms of the ritual are but a canvas on which the divine can write. Obviously the more people you gather together, the chances of one person not ‘really’ taking it seriously goes up and up.</p><p>So long as you have those two ingredients, you can have any kind of ritual you want. When I was a wee lad practicing Wicca, I was a part of a 4-member coven, and we had small weekly rituals and much larger rituals done on feast days. The intimacy of a four-member ritual gets pretty intense, and I came to prefer those over the larger ones.</p><p>But a lot of it is individual too. I felt extremely charged up during my sister’s wedding, which is absolutely a form of worship service. But as I looked around I saw a lot of different levels of engagement with the ceremony.</p>

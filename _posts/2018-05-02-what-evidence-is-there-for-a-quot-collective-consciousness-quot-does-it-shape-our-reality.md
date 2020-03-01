@@ -1,0 +1,7 @@
+---
+layout: post
+title: What evidence is there for a &quot;collective consciousness&quot;? Does it shape our reality?
+date: 2018-05-02
+---
+
+<p>Yeah, there’s nothing scientific about it, but I think it’s actually there.</p><p>So, our own consciousnesses are way more collective than we think. So much of our experience is driven not just by the brain, but also our bodily nervous system, particularly the vagus nerve that connects many of our organs together. All of these systems together collect to form the experience of one being.</p><p>Think about that really carefully. You don’t experience your stomach as a separate entity. It’s part of you. Even though it does a lot of things by itself. Your body is a collective organism, and there’s lots of degrees of autonomy that each individual part possesses.</p><p>In the same way, society possesses a consciousness. All of us contribute to it. And it feeds back to contribute to our experience, just like how if you don’t eat, your vagus nerve will respond. It has it’s own ‘individual’ experience, and you have an individual experience that includes information gleaned from the vagus nerve’s individual experience.</p><p>Have you heard of the idea that we are the average of our five closest friends? Our ambient environments shape us. When something else gives us shape, we don’t really notice it at a high level. So much of what happens to us goes totally unaware by us. It’s part of the human condition.</p>

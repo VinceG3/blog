@@ -1,0 +1,7 @@
+---
+layout: post
+title: How would you explain enlightenment in a way that is easily understood?
+date: 2017-05-09
+---
+
+<p>Enlightenment is an extremely difficult concept to convey both concisely and concretely. Attempts to be concise suffer from confusing language, attempts to be concrete can easily fill books. And every spiritual seeker sees a different facet of it.</p><p>The Buddhists put it well with the Four Noble Truths. The very first truth reads, “life is suffering.” So enlightenment is the relief of all suffering.</p><p>You can do a little thought exercise and try to enumerate all the different ways in which we suffer. Everything from people cutting you off making you mad, to not getting that 20 you needed on a dice roll, to the suffering caused by regrets or even the pain engendered by losing a limb.</p><p>All of this goes away when you become enlightened. Not that the events that would have made you suffer, those still happen. But you just don’t suffer. You’ve purified your mind and will to the point where the part that suffers is simply gone. You still feel pain, you still feel emotion, but the attendant suffering does not happen.</p><p>Those are the very basic fundamentals of enlightenment. There are all kinds of little wriggles and intricacies of the state that you find out as you seek it and if you wind up finding it. But those are outside the scope of the question.</p>

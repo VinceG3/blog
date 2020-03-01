@@ -1,0 +1,7 @@
+---
+layout: post
+title: If I throw a ball and break your glass window and you get angry, what is the reason for your suffering?
+date: 2019-01-27
+---
+
+<p>Anger does not necessarily involve suffering. Nothing does. Suffering implies injury to one’s identity. But if you lack identification, then suffering cannot take root.</p><p>When I was a kid, I used to push straight pins through the skin of my fingers. Pain that I inflicted on myself was a relative concept. I would feel it, but it wouldn’t take long before it would start feeling less like pain I personally was experiencing, and pain that I was watching someone else experience.</p><p>Pain could be there, but I would not suffer through it. It is possible I just wasn’t experiencing enough of it in order to suffer. But I’ve had some severe pain that I would not say I really suffered through. It was pain, it was there, but I didn’t feel like it was <i>my</i> pain. It was only there for the moment, no need to dwell.</p><p>So it is with anger. If someone does something to me in order to make me angry, then the anger rises and subsides of its own accord. Anger is there, but it is not mine. Not being mine means I do not suffer through it.</p><p>In fact, anger is actually pretty fun. It’s a kind of energy I can harness, it can motivate me to do something I would never consider to do otherwise.</p><p>So, to answer your question, the anger itself is a response to an event. But suffering can only come from the self. The anger can be triggered and thus exist without the suffering.</p>

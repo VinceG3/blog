@@ -1,0 +1,7 @@
+---
+layout: post
+title: My girlfriend doesn’t seem to be horny anymore. Is it because of me?
+date: 2019-03-16
+---
+
+<p>As the other answer stated, it’s probably not you, it’s probably all the other crap in her life that’s getting her down. But you could, if you had the inclination, be the way she gets her mojo back.</p><p>A lot of guys treat their girlfriends like vending machines that they get sex from. They’re friends first and foremost, friends that just so happen to rub their naughty bits together from time to time.</p><p>A friendly interaction doesn’t typically make you horny. And lots of times the friendly energy isn’t even present. I’ve seen many young relationships where the couple couldn’t seem to muster up any feelings or desire for each other at all, friendly, romantic, or otherwise.</p><p>The way out of it is to switch up your attitude some. Instead of just taking sex from her when she seems to want to offer it, give something back. Offer to rub her feet or her back. Let your hands wander after a bit and see how she likes it.</p><p>Stress doesn’t have to destroy your libido. Sex can relieve a lot of stress. And it’s often a lot of fun to go from the stressed state to horny to having sex. But when you’re stressed a lot of times you often can’t see the point of it. Especially if she has a boyfriend who treats her like a sex ATM. So give her some reasons to want to have sex with you.</p>

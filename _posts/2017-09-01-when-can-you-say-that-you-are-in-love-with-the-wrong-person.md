@@ -1,0 +1,7 @@
+---
+layout: post
+title: When can you say that you are in love with the wrong person?
+date: 2017-09-01
+---
+
+<p>A romantic relationship is either working or it isn’t. This means that it is satisfying both partner’s needs.</p><p>If it is not meeting one of the partner’s needs, then communication needs to take place to rectify the situation. If it can’t be rectified, then the relationship needs to end. The relationship should also end if it turns out that communication can’t possibly solve the issue, like if one person is no longer attracted to the other.</p><p>If a non-working relationship continues, then we call that a dysfunctional relationship. One or both partners can’t bring themselves to end it, so they are prioritizing the relationship over their own happiness. This will last until someone gets sick of it and does what needs to be done.</p><p>The wording of your question has me thinking about love outside of an actual relationship. If you are just in love with someone, and have never talked to them or shared your feelings, you need to do that as soon as possible. People in this position literally throw years of potential happiness away.</p><p>If they can’t reciprocate your feelings after you share them with them, then a relationship can’t work and you need to move on. No amount of pining will make two incompatible people compatible. Compatibility problems can be identified and worked through, but the relationship has to already exist before going down this road.</p>

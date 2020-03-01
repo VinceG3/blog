@@ -1,0 +1,7 @@
+---
+layout: post
+title: How do enlightened people know they are enlightened? In my opinion there is only an undeniable physical reality and we are just these bodies. What is so bad about that?
+date: 2017-12-15
+---
+
+<p>That was my understanding too when I was born. I happily continued that way throughout school. After I graduated, life started feeling a little, well, thin. I started meeting and hanging out with people that were very different than myself.</p><p>In short, what opened up was a large, large space that stuff like playing video games and learning how to code just wasn’t going to completely fill. I wanted to inquire about deeper stuff in life, like free will, purpose, and God. The people I was meeting were pursuing spirituality in a way that I’d never seen before.</p><p>So whenever I got bored of the mundane, I turned my attention to the transcendent. This began in my late teens. I’m 34 now. Close to 20 years of semi-constant inquiry.</p><p>Your point of view isn’t a bad one, it’s certainly workable and you can find meaning in your life just believing in the physical and nothing more. But it would never satisfy me. I would be endlessly bored and unmotivated and unfulfilled.</p><p>I know I’m enlightened as a result of this constant inquiry. I had to read many, many descriptions of it, and synthesize all the descriptions based on my own reasoning. I’ve dug so deep into meditation and the so-called psychic powers that I’ve been able to come to an understanding of what they exist for and why.</p>

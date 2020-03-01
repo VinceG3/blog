@@ -1,0 +1,7 @@
+---
+layout: post
+title: Can one be a good web developer without being a good programmer?
+date: 2017-07-08
+---
+
+<p>The web is a particular <i>domain</i> of programming. Other domains include embedded systems, database systems, network programming, systems programming, the list goes on.</p><p>The web domain specifically concerns itself with HTTP, presentation, browser control, CRUD resource management and other tasks. It’s a big field. A lot of ‘real’ software developers never develop a full appreciation for just how big.</p><p>I love the web domain and, like you, find other domains tedious and unenjoyable. I often feel like it would be easier for me to learn a different domain than it would be for a typical software engineer to learn how to really be effective at coding the web.</p><p>But web developing is programming and as you get better at it, you also learn how to code better. This may not be true if you only stick to a framework and never venture outside of it, like, say, WordPress development. You <i>can</i> venture out and learn how PHP works, but you probably won’t ever get around to it.</p><p>In this way it is possible to get quite good at delivering websites without ever developing programming skills. You <i>are</i> programming, in the same sense that when you make Excel spreadsheets, you’re programming, but because you’re sharply limiting your skills to a <i>framework</i>, rather than a <i>domain</i>, you won’t be getting much better at coding in general.</p>

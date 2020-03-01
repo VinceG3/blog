@@ -1,0 +1,7 @@
+---
+layout: post
+title: How do I get trained as a web or software developer?
+date: 2017-09-09
+---
+
+<p>You don’t get trained. You train yourself.</p><p>Software development is a highly-paid career field <i>precisely</i> because the people that are good at it take it upon themselves to constantly keep learning. On their own. Sure, there are code camps you can go to that will teach you 15% of what you need. And there are companies out there that will hire code camp grads just to try them out, because the demand is so huge for skilled developers.</p><p>But you won’t last long unless you can take yourself under your own wing and set yourself up for success. Software dev isn’t for people that need their hands held, everybody is too busy and the amount you have to learn is too great.</p><p>I have a buddy of mine who is a project manager by background, he wanted badly to get into development. He doesn’t really have much of an aptitude for it, but he’s hard-headed enough to spend 12 hours a day or more trying to learn. He’s at his first development job now.</p><p>I get texts from him <b>all the time</b> about how hard it is for him to just do basic things. It’s sink or swim and he’s trying as hard as he can to swim.</p><p>If you want your hand held go do QA or technical project management. Or go get your computer science degree and become an engineer. Development’s just not going to be a good fit for you if you think training is the way to get there.</p>

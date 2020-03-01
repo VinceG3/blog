@@ -1,0 +1,7 @@
+---
+layout: post
+title: Does enlightenment create paradoxes? Is truth paradoxical?
+date: 2018-12-03
+---
+
+<p>To call something a paradox is tantamount to saying it doesn’t exist, because it violates some rule of logic. The first thing to realize is that logic is of the mind, we created it and we use it for our reasons. Logic does not and cannot dispel ignorance, just because we cannot imagine an omniscient, omnipotent, omnibenevolent God doesn’t mean one cannot exist. It just means you can’t fit it into your logical framework. Also, not every stringing together of words can bear a useful meaning.</p><p>There are ways to resolve every paradox, the question is simply whether you can accept it or not. For enlightenment, the main paradox to resolve is how can ego destroy itself. The difficulty in resolving that paradox lies in the fact that if you could resolve it, you’d be enlightened. And only people who have become enlightened understand how that resolution works.</p><p>So persons who want to become enlightened must search for the resolution. If the seeker is intrepid enough, they will happen upon the pathway, there is only one, all others are but variations on the same. Surrender. The act of seeking is itself an act of surrender. But there are many many many things ego holds on to that need to be surrendered. You need to surrender the resistance to becoming a seeker, then you must eventually surrender the need to seek.</p><p>As one continues to surrender, the entire vista of being opens up and the contradictions resolve themselves.</p>

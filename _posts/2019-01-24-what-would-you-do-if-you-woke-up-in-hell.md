@@ -1,0 +1,7 @@
+---
+layout: post
+title: What would you do if you woke up in hell?
+date: 2019-01-24
+---
+
+<p>Great question Celine!</p><p>First thing I would do is to try to get my inner bearings. What kind of hell am I in? I would see it as being in some kind of prison. I would first try to see if all my mental faculties are there. Am I being constantly compelled to do something, like hurt others or myself? I’d do lots of meditation to figure out if minds are different in hell, because the mind is my primary interface to the rest of the world.</p><p>Once I get enough answers to where I’m momentarily satisfied, I’d try to work out the rules of the social environment I’ve found myself. I’d expect it to work a lot like prison, where people are mostly miserable or they’ve decided to delight in inflicting misery.</p><p>So I’d try to get to know the people around me and see what might could be done or accomplished. I’m not the kind of person to just succumb to misery or delight in inflicting it on others so I might find myself fighting a lot, I dunno.</p><p>But if I have all my mental faculties and the ability to meditate, then I’m sure I’d be able to raise the consciousness level of at least my immediate surroundings. If I couldn’t then that would be an excellent thing to meditate on.</p><p>I plan on visiting hell once I die so it might not be a totally hypothetical question.</p><p>Thanks for the A2A!</p>

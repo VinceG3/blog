@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why can&#39;t people use telepathy to communicate with the dead?
+date: 2018-01-20
+---
+
+<p>You can. It’s the exact same thing as any other “ability” of this type.</p><p>You first get acquainted with meditation and trance. When you’re deep in trance, then you can “call” the dead person to you. Then you just start communicating. Depending on how good you are at trance work, you may or may not be able to perceive responses. I’m not terribly good at it myself, though I’ve been working on it.</p><p>I’m going to make this brutally clear to you. It’s the exact same thing as just sitting still for awhile and imagining that you’re communicating with them. You won’t have any way to know whether it’s actually them or not. You’re going to feel a presence in your head, and you’ll need to believe it’s them. You’ll never be able to <b>know</b>.</p><p>That said, why wouldn’t it be them? What else would it be? Some silly people let their fears go wild and imagine it’s a demon or whatever talking to them. Those prone to psychosis should not fuck around with trance work, your life will already be crazy enough without handing crazy an engraved invitation.</p><p>Otherwise there’s no reason to disbelieve anything that happens when you’re under trance. In fact, just rolling with whatever your first impression is is the quickest way to deepen the experience.</p><p>Spirituality is the mature and clever exercise of <i>imagination</i>.</p>

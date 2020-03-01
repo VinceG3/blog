@@ -1,0 +1,7 @@
+---
+layout: post
+title: How can I easily learn web development and get a job?
+date: 2018-10-09
+---
+
+<p>Web development is not an easy thing to learn. It’s not hard to pick up the very basics, but nobody is going to be interested in paying you to just apply the basics.</p><p>The quickest way into the industry, for a long time, has been to find a large company and start at the bottom of the ladder, and spend a few years paying dues. Practically the only way to get a job at a large company is to be willing to go where they are. If they have a burning need they’ll relocate you, but if you don’t have any professional experience or the specific credential they’re looking for then that’s probably not going to happen.</p><p>The good news is that big companies with offices out in the sticks are having a much tougher time finding talent. When I was breaking in, one of my first jobs had me driving an hour to work on Monday and staying in a company-provided apartment. I spent the week there and went back home on Friday for the weekend. I couldn’t get out of there fast enough.</p><p>So if you’re eager and willing to relocate, you can start a career in technology. Might take you awhile to find your way back home. But just like finding that first job, it’s not too hard if you’re intrepid and willing to make sacrifices. I could make $30-50k more if I were willing to relocate but I’m not so I put up with it.</p>

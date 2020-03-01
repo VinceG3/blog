@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why do we believe in the beliefs we created?
+date: 2018-02-20
+---
+
+<p>A belief is a self-imposed structure in your brain that affects further brain activity. When your mind is in an uncomfortable state of uncertainty, it tends to come up with something plausible to fill the gap with. This is the beginning of belief.</p><p>It happens all the time, don’t just consider existential concerns, but also stuff like, “does my boyfriend really like me or not?” The answers we come up with in our own heads tend to stick around until conclusively disproven. Anybody whose ever tried to deal with a SO who thinks they’re being cheated on knows just how hard these convictions can be to topple.</p><p>The antidote is lots and lots of information about the thing that we were ignorant about. This is why your SO wants to go through your phone. They want all the infos so they don’t have to worry anymore.</p><p>But in this situation, the information you have access to doesn’t always fit with what other people believe and understand. Sometimes there’s no information at all. In these situations, what the mind comes up with all on its own tends to petrify and become belief.</p><p>Since the brain structures were completely self-created and are being held on to by that same self, the only person that can decide to let go of them are that person. You, interested bystander, are not going to be able to convince them to give them up. That belief was there for them when they really needed it, and you weren’t.</p>

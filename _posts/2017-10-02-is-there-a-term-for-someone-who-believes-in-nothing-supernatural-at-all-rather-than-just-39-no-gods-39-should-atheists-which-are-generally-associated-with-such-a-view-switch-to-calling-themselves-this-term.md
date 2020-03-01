@@ -1,0 +1,7 @@
+---
+layout: post
+title: Is there a term for someone who believes in nothing supernatural at all, rather than just &#39;no gods&#39;? Should atheists, which are generally associated with such a view, switch to calling themselves this term?
+date: 2017-10-02
+---
+
+<p>The word you’re looking for is “materialist.” It refers to someone who holds that only physical things exist.</p><p>Atheists, particularly the ones that say that atheism is a lack of belief rather than a belief, is that all of them?, are better referred to as materialist because that better describes what they hold to be true. (trying hard to be a good sport and not calling it belief) Gods don’t really play a role in their lives.</p><p>I liken spiritual belief to an ‘orientation’ akin to sexuality. You’re either oriented towards it or you aren’t. Everybody is spiritual, it’s just that some people are willing to actually believe or not.</p><p>Nonbelievers amuse me when they turn into modern-day theologians by diving super deep into, say, comic book canon. This is an example of spirituality without belief. The stories we come up with are legitimate mythologies and the characters are gods / demigods. The way we interact with them today is exactly the same way the Greeks considered their gods, as stores and sources of meaning.</p><p>Spirituality is ever-present, it’s belief that’s the sticking point today. I believe that eventually, atheists will stop being so hard-headed about it all and just smile and nod and join the fun. Believing things is fun.</p>

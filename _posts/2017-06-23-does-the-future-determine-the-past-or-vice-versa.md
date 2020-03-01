@@ -1,0 +1,7 @@
+---
+layout: post
+title: Does the future determine the past, or vice versa?
+date: 2017-06-23
+---
+
+<p>A2A, if you need a hard and fast answer, the past determines the future.</p><p>Determinism can only go one way. That way is the direction of causality. If it went the other way, then we’d just call that way the future / past.</p><p>But of course that’s not all there is to the question. There is this thing we call geopolitics. In geopolitics, geography constrains behavior. You can discern the overarching goals of a nation simply by looking at its borders.</p><p>For example, you could have figured out that the United States, in its 1700s coastal incarnation, would eventually grow to span the North American continent from east to west. Naturally geopolitics wasn’t a thing in the 1800s, but it’s not like it didn’t matter just because we didn’t think about it. It’s just too compelling a goal to leave to our own devices.</p><p>You can similarly determine past from the future by setting a compelling enough goal ahead of you. The future outcome, your achieved goal, determines your present actions.</p><p>I’m not a big fan of excessive goal-orientation. In the first place, while you have reversed causation in one sense, the goal that you are placing in the future is still determined by the past.</p><p>Many times I have accomplished goals only to find that they became meaningless in the interim. I can make goals meaningless faster than I can accomplish them. So goals make no sense to me.</p><p>Allowing the present to unfold into the future is plenty powerful.</p>

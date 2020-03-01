@@ -1,0 +1,7 @@
+---
+layout: post
+title: Does a person function normally after an enlightenment?
+date: 2018-07-09
+---
+
+<p>It takes a little while. Enlightenment affects how we see ourselves, does a bit of brain rewiring. Or minds have to catch up with our new perceptive modes. It can take up to a year.</p><p>What's harder to cope with is the identity shift. This doesn't affect functioning but rather what they person chooses to do with themselves. I see a lot of what I call "ESMW syndrome." That stands for enlightened social media warrior syndrome.</p><p>It's a fancy term for all the weirdos you see yakking endlessly about enlightenment on social media forums. I've interacted with enough of them to be able to determine that while yes, most are enlightened, they really don't have any idea what to do with their spare time and energy. They say, "after enlightenment, the dishes," but what do you do after the dishes are done?</p><p>When you have nothing taking up you time and demanding your attention, nothing to drive you to decide on a hobby or something, and an aversion to creating more identification in your life, but still in possession of copious amounts of time and energy, it takes a while to find the obvious answer to the dilemma, which is to just do whatever is in front of you to the best of your ability.</p><p>Many are enlightened but ill-equipped to make sense of the state. So they take to social media in order to help them do that.</p>

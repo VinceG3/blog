@@ -1,0 +1,7 @@
+---
+layout: post
+title: Honestly, have men flirted with every beautiful female friend they ever had or were they disciplined enough to keep things 100 percent friendly with at least one beautiful female friend?
+date: 2017-11-18
+---
+
+<p>My experience has been, if you don't flirt with them, they're eventually going to start flirting with you. Mutual attraction demands exploration, and flirting exposes the personalities of the two people involved and they get to go on a little journey together.</p><p>Lots of interactions never go beyond this stage. Flirting is a natural and fun thing to do with anybody that's receptive to it. It's the next step you have to be careful with. The step where things start getting real. We call this “hitting on” someone. You can flirt all day with a woman, even in front of her husband, and everyone will laugh and have a good time.</p><p>But if you hit on a woman in front of her husband, well he's not going to like that much. That's the difference. Treat the women you like like they're married and their husbands are right there in front of you watching. Be nice and respectful until <b>she</b> stops flirting and starts hitting on you.</p><p>This rule is horrible from a feminist point of view because it's reinforces sexist norms, but it still remains a good rule to guide behavior. Always act like the whole world is watching you.</p><p>Don't not flirt with women just because they're beautiful. Just don't hit on them.</p>

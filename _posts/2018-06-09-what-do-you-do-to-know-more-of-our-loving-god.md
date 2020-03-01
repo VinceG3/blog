@@ -1,0 +1,7 @@
+---
+layout: post
+title: What do you do to know more of our loving God?
+date: 2018-06-09
+---
+
+<p>Edit: My tablet doesn’t show me the question I’m answering, so I misread “loving” as “living” and didn’t discover it until after I hit send. Leaving my answer anyway!</p><p>Hi Asha!</p><p>Honestly, if I hadn’t been A2A’ed this question by someone I’ve interacted with, I would have passed on it. The reason is that it’s open-ended to the point to where the only way to usefully answer this question is to just summarize what I’ve been doing lately. What do I want to understand about the Living God? Hmm, how about <i>everything</i>? Does everything work? :-)</p><p>But there’s another angle to why I don’t like the question. The Living God is just that, <b>alive</b>. Living things are constantly changing. As soon as you understand something that is alive, that understanding becomes dead. The only kind of knowledge that is possible is dead knowledge.</p><p>I can wax ever so eloquently on things that lose relevance the very moment I close my tablet and move on to another adventure. Those dead things can be resurrected and brought back to life in an adventure long after the dead was forgotten. The living and the dead get kneaded into each other to make a truly divine dough. I like to think it’s this dough that communion wafers are made of.</p><p>But no understanding can be made of something that’s still alive.</p>

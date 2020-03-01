@@ -1,0 +1,7 @@
+---
+layout: post
+title: How do I discover what the ingrained beliefs, assumptions and misconceptions of my subconscious are?
+date: 2018-12-31
+---
+
+<p>The first misconception is that your subconscious is the source of the ingrained beliefs, assumptions and misconceptions. They are not a function of the subconscious. The subconscious is a giant pattern-recognition machine. It’s the conscious that makes sense of the patterns that the subconscious recognizes.</p><p>You have beliefs, conscious beliefs, and those beliefs cause the subconscious to look for patterns validating them. If you believed, like some in my family do, that black people are drains on society, then every time you see a news article involving a black person, your subconscious will highlight the information that validates this view.</p><p>No, the place to look for ‘unconscious’ beliefs, assumptions, and misconceptions is the conscious. You need to get good at recognizing when “this thing I’m thinking doesn’t seem right,” and start analyzing what you’re thinking with a more rational mindset than you’re used to using.</p><p>What does ‘more rational mindset than you’re used to’ mean? In many cases, this means study and learning. We are all ignorant of ways of thinking about things, this is why we should be constantly ingesting information from the world. Forget the news, pick up some books. Too hard to separate the good from the bad. I’ve read hundreds of self-help, history, spiritual, fiction books. If you don’t have the time for books, try blogs. Still lots of great ones out there.</p>

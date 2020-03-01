@@ -1,0 +1,7 @@
+---
+layout: post
+title: Many times I lose male friends because I refuse to date them. I have met a lot of wonderful guys. How do I remain friends with the guys without dating them?
+date: 2017-09-24
+---
+
+<p>I’ve been trying to come up with a good answer to this question for a long time.</p><p>I have a theory that might help. I have a hot lady friend that is for some reason really good at keeping male friends. I think her secret is that she’s not afraid to flirt with guys and then turn them down later. Guys don’t feel lonely around her, they don’t feel inadequate. They might later on, but right there in the moment, talking to her, they feel like one of the cool kids because they’re talking to a hot chick.</p><p>I am a firm believer in turning towards that which is unpleasant or hard to deal with and figuring out a way to deal with it. Guys wanna smash, you don’t want to smash, figure out a way to give them what they need without giving them what they want.</p><p>Now that I think about it, giving people what they need without giving them what they want seems to be the key to success in life. I can’t tell you exactly how to act because I don’t know you or your personality, but the basic idea is that friendship isn’t a one-way street. You have what you want out of a friendship and the people you want to be friends with have their idea.</p><p>You can’t fault people for wanting what they want. If they can’t get it, eventually they’re just going to go find it somewhere else.</p>

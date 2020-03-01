@@ -1,0 +1,7 @@
+---
+layout: post
+title: Do you believe that all human consciousness is connected by an unseen conduit?
+date: 2017-09-25
+---
+
+<p>Consciousness is an abstract thing, one that does not have a referent, that nevertheless has real effects. Examples of other abstract things include Harry Potter, mathematics, and the calendar. What’s real is the earth spinning around the sun, the calendar is something we invented to make sense of it.</p><p>Consciousness is connected to other consciousness in what way then? You guessed it, an abstract one.</p><p>What does that mean? Well, there’s lots of kinda-boring ways to answer this question. I started on a tangent on how the code repos I work on as a developer could technically be considered connected since they’re all on Github, but that doesn’t really get at what you want to know, now does it?</p><p>You want to know if things like telepathy and the like are real, if consciousness can affect other consciousness without going through a physical channel.</p><p>Well, I spent a lot of time investigating psychic phenomenon and I can tell you that yes, I believe this stuff does exist but at the same time, it’s just not very interesting to me. If you look at the ‘strength’ of the nonphysical channels of communication, they are vastly dwarfed by even the most basic ‘normal’ way of doing things. Wanting to be a psychic is basically just wanting to be weird and mostly useless. The career path for psychics inevitably devolves to glorified therapy.</p>

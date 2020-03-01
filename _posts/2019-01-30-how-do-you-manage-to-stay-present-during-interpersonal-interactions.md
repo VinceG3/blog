@@ -1,0 +1,7 @@
+---
+layout: post
+title: How do you manage to stay present during interpersonal interactions?
+date: 2019-01-30
+---
+
+<p>One thing I do is to look very carefully at a person and their mannerisms and listening to their tone of voice and trying to get into their head to figure out their emotional state and what they think is interesting about what they’re trying to say.</p><p>Many times we start tuning people out because they’re not saying anything that we find immediately interesting. If I am spending time with someone then I want to find our conversation as interesting as they find it. So I don’t leave it to chance. I’ll look for interesting connections in what they’re talking about to my own experiences, or funny ways to draw connections between seemingly unrelated topics.</p><p>I am usually talking with friends that I’ve known for months-years, so I have a lot of historical space to operate in. If it’s with somebody I just met, say at the bar, then there’s the newness of everything that I find just really interesting to experience.</p><p>If they’re attractive, then that adds a whole new dimension to the interaction, a whole new space to explore. Generally I want to think about how to bring more pleasure to this person that is bringing me pleasure just by interacting with me. I want to build a kind of feedback loop that adds a bunch of positive energy to both of our’s days.</p><p>But, generally speaking, the capacity for concentration and attention can be worked like a muscle, just by practicing with each new interaction.</p>

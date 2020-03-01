@@ -1,0 +1,7 @@
+---
+layout: post
+title: Eternal life or non-existence upon death, which you do find more appealing, or frightening?
+date: 2018-04-25
+---
+
+<p>I find the prospect of eternal life appealing, and the prospect of oblivion slightly sad, but not frightening in the least. My spiritual beliefs revolve around the concept of a “benevolent universe” that also has to hew to logic. The thing driving my thought processes in this direction is that what materialists think of as logic is usually anything but. So I entertain ideas of afterlives and reincarnation.</p><p>I believe the reason that I’d be okay with oblivion if it happens to be due to my high level of ‘spiritual advancement’ which I also believe to predate my current life. One of the questions I’m trying to answer conclusively for myself is whether I’ve chosen to reincarnate because I thought it’d be fun or whether I didn’t have much of a choice in the matter. A benevolent universe doesn’t necessarily preclude things like lack of choice or even horrible things or evil. It just means that all such things must serve a deeper, benevolent purpose.</p><p>I agree with the Buddhists that existence necessarily involves suffering, so I’m not in a big rush to disprove the one thing that can remove it for good. But existence also involves the slow removal of suffering, the suffering I bear now is certainly not overwhelming, why not stick around and see what happens?</p><p>If I had my preference, I’d pick eternal life. Even if I had to spend it in Hell.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: How can I stop feeling frustrated by the effort required to be an attractive person?
+date: 2017-08-18
+---
+
+<p>It takes me a lot of effort to keep up my intelligence. More and more of my time gets devoted to keeping on top of the game. At the same time I am getting more efficient at it. I learn little logical tricks to be able to manage the load.</p><p>But at the end of the day, being smart means ingesting and making sense out of a great great deal of information. And if I ever stop doing it, then slowly, but surely, I’ll just get dumber and dumber. I will no longer be able to run rings around ‘the competition’. I will no longer possess a sure, confident intellectual step.</p><p>You have to own it. All of it. Treat it as part of the end goal.</p><p>But you have an advantage in that maintaining beauty and attractiveness does not have to be a solitary pursuit. You can enlist other people. Ask for help. One thing I’ve been interested in lately is so-called ‘sugar daddy’ dating websites. You can find a ‘patron’ to at least help pay for stuff like personal training.</p><p>But really, it comes down to owning your life, all parts of it. You can stop doing things you don’t want to do. Nobody’s going to make you. Personally, I can’t be bothered to exercise. The women I’m into don’t seem to mind all that much. Attractiveness really is all about subtle internal traits and being comfortable in your skin and knowing what your intentions are.</p><p>A lot of people loved Elvis even more after he got fat.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: How does a believer grow spiritually?
+date: 2018-12-29
+---
+
+<p>The process of spiritual growth is also called <i>surrender</i>, and that phrasing makes it easier to discern what’s going on. Basically, the believer works out how to live less like an individual, and more like a participant in something grand and wonderful.</p><p>There’s an inherent paradox here. How can one <i>grow</i> by surrendering? Won’t surrender make you <i>less?</i> How can you grow as an individual by giving your life up to God?</p><p>The reality is you don’t know. You have to make a leap of faith. Trust in God, and He will never fail you. It’s not real faith if you can’t put yourself in the hands of the Lord. You learn how surrender makes you grow by actually doing it. It’s different for everybody.</p><p>I read a story recently about how a police officer had his career and life ruined by someone who made it her business to ruin police officers. I couldn’t help but marvel at how much the person was able to grow as a result of the experience. He described losing his health and station in life, but is now remarkably relatable and inspiring in his retirement.</p><p>When you stop identifying with the unimportant, the wonderful shines through. That’s what really happens when you surrender yourself. What’s fake and misleading leaves, and spirituality points the way to greater vistas than you could have even imagined.</p>

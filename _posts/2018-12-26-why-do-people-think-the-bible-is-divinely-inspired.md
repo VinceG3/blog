@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why do people think the Bible is divinely inspired?
+date: 2018-12-26
+---
+
+<p>The specific phrasing typically used is “divinely inspired.” This is the position of the Roman Catholic Church and all mainstream Protestant churches. Divinely inspired means that God revealed Himself to the authors. Positions vary as to just how this happens, but it’s something any Christian can feel, the urge to do something, to write something, to create something, that doesn’t feel like it comes from you but yet drives you to accomplish like nothing else.</p><p>Your question reveals a slight bias that we all have in these modern times. Most of the Bible wasn’t ‘written’, it was collected from the folk tales and legends of an ancient people. Many of the stories in the Old Testament were well over a thousand years old when the New Testament joined it. They weren’t composed in a cloistered ivory tower by a soft monk who was looking to get one over on the clueless peasants.</p><p>They were told over dinner to the children, as remembered history. If the stories didn’t get told, then the events were forgotten. Over the years certain story elements became less important to remember, and others became magnified.</p><p>The idea is that the process by which oral history became scriptural codices was divinely managed. God guided the scribes and storytellers. Given how beautiful and wonderful many of the stories are, it’s not the hardest thing in the world to believe.</p>

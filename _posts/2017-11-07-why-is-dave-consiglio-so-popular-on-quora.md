@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why is Dave Consiglio so popular on Quora?
+date: 2017-11-07
+---
+
+<p>My take on it is that it’s because he has a natural head for branding.</p><p>A brand is a promise you are making to people. People trust brands not because they see them all the time, which is what most people think of when they consider branding, but because the people that make the products under the most-trusted brands <i>never break their promises</i>. The biggest branding fail most people think of, New Coke, is memorable precisely because it’s so anomalous.</p><p>The other aspect of branding that’s important is <i>packaging</i>. This is where you wrap your message and product up in a neat, understandable little bundle that people can grasp in a moment’s notice. Everyone Dies™ wraps up the promise with the packaging in an extremely memorable and novel way.</p><p>Another phenomenal user of branding on Quora is <a href="/profile/Ross-Trittipo">Ross Trittipo</a>. <a href="/profile/Franklin-Veaux">Franklin Veaux</a> is no slouch either. Note that you don’t need to have a branding mindset to be popular on Quora or anywhere else. <a href="/profile/Sean-Kernan">Sean Kernan</a> is remarkable for not having any branding at all really. He’s consistent but not packaged, making no promises for anyone to rely on. Hence all the threads wondering why he’s so popular. People see his name but they don’t know what he’s about.</p>

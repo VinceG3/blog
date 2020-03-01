@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why shouldn&#39;t we change some aspects of our personality in the path of awareness, since I am not the mind and personality, especially if I desire something for it’s own sake (like socializing, or being content about life, enthusiastic)?
+date: 2017-09-13
+---
+
+<p>Personality is not really worth changing. It’s more effort than just coming to an awareness of the underlying problem you’re trying to solve. Personality runs really really deep. It’s not easy or quick to just move in a different direction just because you want to.</p><p>For example, I would love to work out more and stay fit. But the reality is, working out is just not how I want to spend my time. I’ve done martial arts in the past, I used to be really fit. I had a ton of energy for that kind of thing back then.</p><p>Now, it’s way easier for me to just solve the various problems that not having a super-active lifestyle poses than to try to change myself so that I’m more active. I play ping pong, I walk to work. I’m as active as I really care to be.</p><p>I used to worry that women wouldn’t be interested in me because I wasn’t really fit. I eventually was able to realize that this wasn’t true. I was able to find a way of attracting and dealing with women that actually fit with my personality.</p><p>Even if you did possess the capacity for changing your own personality, it would <i>still</i> be better to just find a way to work with your existing one.</p>

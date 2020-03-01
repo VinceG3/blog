@@ -1,0 +1,7 @@
+---
+layout: post
+title: Maybe spirituality is labeled as &quot;pseudoscience&quot; so that science can continue to sell us technology while keeping us from achieving a higher consciousness. What are your thoughts on this statement?
+date: 2018-11-06
+---
+
+<p>Spirituality isn’t labeled as pseudoscience. Pseudoscience is labeled as pseudoscience. If you’re not trying to pass off spiritual reality as material reality, then no one will try to apply the label to you.</p><p>Most people don’t realize this, but science was created by religious people. Deeply religious people who felt that we were intended to glorify God by understanding His creation. Think about it, how could science <b>not</b> be a phenomenally and intrinsically holy thing to do?</p><p>Science allowed us to escape the <i>need</i> for religious modes of cooperation. When religion stopped being called upon to organize and hierarchicalize our lives, we were better off for it. People could stop worrying about religious dogmas and start thinking more spiritually.</p><p>I’ve never felt like technology made it harder for me to be spiritual. Rather, technology has made it much much easier to do the most powerful kind of spirituality imaginable, <b>sharing</b>. I can simply answer questions people ask and other people can read them and offer their own perspective. In this way everybody is enriched.</p><p>Technology will allow us to glorify God in the simplest and most amazing way possible, by allowing us to become what we once worshipped.</p>

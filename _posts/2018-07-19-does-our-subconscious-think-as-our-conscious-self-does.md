@@ -1,0 +1,7 @@
+---
+layout: post
+title: Does our subconscious think as our conscious self does?
+date: 2018-07-19
+---
+
+<p>It <i>can</i>, but does not normally.</p><p>The subconscious takes the form of whatever beliefs you have. If you <i>believe</i> that there’s God, and you go deep into trance so that you can talk to Him, then the entity you are actually communicating with is your subconscious.</p><p>This absolutely does <b>not</b> mean that God doesn’t exist. Your brain is very like a giant antenna, and trance puts it into a highly receptive state. Literally anything can affect it. But whatever ‘signal’ it gets is moderated by the subconscious in order to produce a conscious experience.</p><p>I say this not to make any kind of statement about what’s ‘out there’, only to highlight that our subconscious is extremely malleable, and will perform any role that’s asked of it. We are only <i>conscious</i> of a small part of our mind’s functioning, and we can bring conscious awareness to many many different parts of the brain.</p><p>I’ve gone through a period of my life when I was playing around with treating the subconscious as an entity of its own, which I called the “Higher Self.” I would talk to it and have it teach me. I originally thought it existed ‘elsewhere’, like on some different plane. Eventually I came to realize it used the same brain I did.</p><p>This didn’t kill my spirituality and replace it with materialism. It instead just made the mystery weirder.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: What does the word &quot;stack&quot; in full-stack developer implicitly mean?
+date: 2017-07-24
+---
+
+<p>A technology stack.</p><p>You have:</p><ul><li>The CSS Styling</li><li>The HTML markup</li><li>The Javascript providing dynamic behavior</li><li>The API queries back to the server</li><li>The mapping of URL routes to server actions</li><li>The procedures those server actions run</li><li>The underlying data models used by the app</li><li>The data queries used to get the data from the database</li><li>The database software that’s hosting the data</li><li>The data schema</li><li>The actual machines that the servers, including the database server, run on. Some use hosted services, that eliminates the need for this specialty.</li></ul><p>All of these represent parts of a <i>stack</i> of technologies, each one rests on top of the next one. Problems can develop across the entire stack. A full-stack developer is one who specializes in solving any and all of them.</p><p>Usually, you see the word defined in the relevant technologies that were chosen at the beginning of the project. For example, LAMP, which stands for Linux, Apache, MySQL, and PHP. One thing you can run on the LAMP stack is WordPress.</p><p>A full-stack LAMP developer is, therefore, someone who understands all four components well enough to fix problems with them.</p><p>I personally am a full-stack developer specializing in Rails. Rails apps don’t have cute little 4-letter acronyms because they all mostly look the same.</p>

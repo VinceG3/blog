@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why do some people try and explain spiritual concepts as if they lead you through the &#39;right&#39; set of ideas for you to &#39;realise&#39; they are right, and to believe what they believe? Is it an invitation to join their personal cult or submit to them?
+date: 2017-09-02
+---
+
+<p>Because it’s really difficult to do otherwise, and trying to, while the effort is often appreciated, isn’t really conducive to good discussion. Eventually you learn to live with sounding like you’re trying to teach with every sentence, and just learn to work on your pedagogy.</p><p>The issue is that spirituality is a realm where the normal rules don’t apply. All the rules are made up by you. Or me. Or whoever is having the spiritual experience. Nothing is objective, everything is subjective.</p><p>So there’s lots of explanation required so that the explanation does its job. Socratic-type dialectic can be annoying, but it does do the job of conveying an idea along with its surrounding context. Whereas constantly apologizing for having strong ideas doesn’t work half as well.</p><p>Another thing is that spirituality solves a lot of really, really deep problems people have. Someone with really deep depression or similar mental issues can have them completely ‘resolved’ by spirituality. Or rather, it trades one really horrible problem with other problems that aren’t half as bad.</p><p>So the seeker whose found what he’s sought can be a bit forceful about just what spirituality can do for you.</p>

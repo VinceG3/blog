@@ -1,0 +1,7 @@
+---
+layout: post
+title: Spiritualists like to think that Jesus was enlightened. Do they think the same way about Muhammad?
+date: 2017-12-22
+---
+
+<p>I doubt many Western spiritualists have thought about it long enough to form an opinion. Jesus looms large in their mind because most of them grew up Christian. And they fail to gain a historical appreciation of Judaism or early Christianity. So they take the common depiction of Jesus, issued by the Romans hundreds of years after Jesus was dead and gone, and roll with it. History takes a similar amount of effort to work into one’s worldview as mysticism, and people that do one rarely do the other.</p><p>One of the things that led to my ultimate rejection of David Hawkins was that he fell into the trap of anointing Jesus with “full enlightenment,” along with 4 other spiritual figures. After I read a few books about the historical Jesus, that along with my own personal experiments with the sort of “calibration research” that Hawkins used to map out the levels of consciousness made me realize that Hawkins made a huge error.</p><p>Lists of Hawkins calibrations are plentiful online, One of them has Mohammed at 740 when he wrote the Koran, which is well past the cutoff for enlightenment of 600, but then later falling to 90 when he practiced the “Way of the Sword.” I consider this sort of thing to be little better than cultural snobbery.</p><p>The effects of culture on one’s mysticism should never be underestimated.</p>

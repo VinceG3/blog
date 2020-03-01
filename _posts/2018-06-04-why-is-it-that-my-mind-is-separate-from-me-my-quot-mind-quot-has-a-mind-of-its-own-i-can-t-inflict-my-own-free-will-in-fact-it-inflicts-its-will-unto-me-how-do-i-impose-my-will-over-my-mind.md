@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why is it that my mind is separate from me? My &quot;mind&quot; has a mind of its own. I can’t inflict my own free will, in fact it inflicts its will unto me. How do I impose my will over my mind?
+date: 2018-06-04
+---
+
+<p>You may be interested in the teachings of David R Hawkins, who teaches that the mind is more powerful than the body, and the will is more powerful than the mind. I do believe this myself, though for me there’s no big struggle to impose my will onto my mind. Reading Hawkins may give you more insight that I can’t.</p><p>That said, small acts of will can have extremely large impacts on mind. For example, if instead of expecting your mind to remember that you have to wash clothes, you put your hamper full of dirty clothes in your way somewhere you can’t ignore it, then you have a rock-solid reminder. If you stack many of these sorts of <b>physical</b> guides to behavior in your environment, then you can change many, many things about your life.</p><p>You need to think of your will as a lever. It can do things your mind can’t. You can observe your mind and figure out the patterns by which it operates. Once you’ve figured out the patterns, then you can use your will to make your normal patterned response impossible to keep up. Once you can’t use your mind’s programmed response, then you’ll do something spontaneously. You can then analyze the spontaneous response so you can understand it more.</p>

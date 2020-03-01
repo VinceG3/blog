@@ -1,0 +1,7 @@
+---
+layout: post
+title: Shouldn&#39;t we, whether atheist, Christian, or whatever challenge our beliefs?
+date: 2018-07-02
+---
+
+<p>It's often extremely difficult to find the right way to challenge them. In an ideal world, we'd bounce between skepticism and an ever deepening appreciation for "the mystery," whatever part of the mystery happens to appeal to us.</p><p>In reality, one has to seek out initiation. We have to be taught the necessity and significance of the need to believe. It's too difficult to find on one's own. So most of us skip around on the surface and never find the deeper inquiry.</p><p>I challenged my parent's Christianity as a teenager and it led to atheism. I challenged my atheism in my late teens and it led to my dedicating myself to a Wiccan coven. After leaving the coven and moving across the country, I couldn't find a spiritual group I liked, so I gravitated back towards being non-spiritual. I eventually rediscovered it on my own terms. In recent times, I’ve challenged my arms-length distance from Christianity as well as my perennial status as a seeker and not a teacher.</p><p>Challenge, of myself, my beliefs, of systems of knowledge and understanding, has been an integral part of my life. I couldn't imagine existing without it.</p><p>I have a sad tenderness toward my atheist brothers who simply were never given the tools and resources they would have needed to plumb the depths of mystery. To challenge them to try anyway, I’ve learned, is more supercilious than regardful.</p>

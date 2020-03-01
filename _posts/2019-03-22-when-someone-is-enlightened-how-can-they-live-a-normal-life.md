@@ -1,0 +1,7 @@
+---
+layout: post
+title: When someone is enlightened how can they live a normal life?
+date: 2019-03-22
+---
+
+<p>It depends. In my conception people who arrive on Earth have varying levels of consciousness, their level of consciousness determines what relation they have to enlightenment. I once thought people could reach enlightenment hundreds of times in as many lifetimes. Now I think people pick and choose their material lifetimes more carefully.</p><p>You can either be comfortable with the enlightened state or the state can be very new to you. If you are comfortable then you can absolutely conduct a normal life. The cognitive pressures that enlightenment presents won’t really stress you, you’ll be able to come to enough insight to where you can relax and let things be.</p><p>But if enlightenment is new to you, then it’ll be much harder to handle. You’ll be prone to misrepresenting what enlightenment is and what it’s all about. These misrepresentations will compound and make it very difficult to relate to others. Without the ability to relate to others you won’t be able to do mundane things like hold down a job or keep the bills paid. You might even find yourself homeless and not even caring.</p><p>Enlightenment is the destruction of thinking that ‘you’ matter. This can mean that you can’t keep pursuing ‘you’ as a worthy entity of pursuing, or it can mean you become super-great at it. Non-duality removes all the rules.</p>

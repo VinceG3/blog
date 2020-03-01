@@ -1,0 +1,7 @@
+---
+layout: post
+title: What does it mean when you ask a girl out and she says all your date ideas are boring?
+date: 2018-01-24
+---
+
+<p>One of my compatibility tests is whether or not we can vibe together during a “boring” date. Conversation can be very, very fun and engaging. It’s best done in a nice, comfortable setting when all your physical needs are being met.</p><p>A classic dinner date is my absolute gold standard date idea. The first date I had with a girl I’m currently feeling out had me at her place petting her cat and watching Game of Thrones. She didn’t want to cuddle, so instead I cuddled with the cat. It was nice, but it felt like I was dating the cat and not her! None of our conversations could really deepen because between the cat and the show we were all over the place.</p><p>I finally got my dinner date a few days later. Now I feel much more comfortable with her.</p><p>People fear awkwardness too much.</p><p>If a girl can’t be comfortable with a low-key date where it’s just the two of us and no big huge activities to distract us, then I don’t think we’d be good relationship partners. I focus really really hard, and I want the focus of a date to be on my date, not on the activity. When I focus, everything else tends to get blocked out. Can I just do that with you plz?</p><p>I feel an “exciting” date is just hanging out. I’m fine hanging out with a romantic partner, but only after we’ve gotten to know each other really well.</p>

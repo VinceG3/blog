@@ -1,0 +1,7 @@
+---
+layout: post
+title: Is hell a place where the condemned are deprived of the sight of God and excruciatingly tormented for all of eternity?
+date: 2018-06-10
+---
+
+<p>Nobody really knows what Hell is. Even the Bible only guesses. Only the deluded try to pass the Bible off as the literal Word of God. Everybody else recognizes that the Bible is mediated by humans for many reasons, some of which are political in nature.</p><p>And when it comes to politics, the political utility of motivating people to work hard for the state and nation is going to take precedence over the goal of promoting the real truth. And the doctrine of Hell as told by the New Testament is nothing if not conducive to political goals.</p><p>Personally, I like to define all parts of the afterlife, including Heaven and Hell, according to the principle of <i>omnibenevolence</i>. This means that, above <i>every single other concern one can think of</i>, the afterlife first and foremost is <b>good</b> for the beings that find themselves there.</p><p>This means Hell has to be an ultimately good thing for the people that go there. Whatever happens to the people that go there, has to be in their own best interests.</p><p>So characterizations of Hell that involve <i>eternal</i> damnation categorically cannot be <i>omni</i>-benevolent. Because that would mean damnation would be better for the person than <i>all</i> the alternatives.</p><p>So no, I do not believe that Hell is a place where people go to be <i>eternally</i> damned.</p>

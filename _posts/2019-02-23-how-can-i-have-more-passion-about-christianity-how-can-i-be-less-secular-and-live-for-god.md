@@ -1,0 +1,7 @@
+---
+layout: post
+title: How can I have more passion about Christianity? How can I be less secular and live for God?
+date: 2019-02-23
+---
+
+<p>I like to use the phrase “old myth made new.”</p><p>In some ways, Christianity is ancient. 2000 years is a very very long time. In other ways, it’s brand new. Humans have been on this earth for perhaps a <i>million</i> years. That’s 500 times those two thousand.</p><p>Right around the time we were figuring out how to write, we came up with religions. Writing allowed us to share ideas, encouraged us to think in abstract rather than purely concrete terms. Our ideas about our selves and the divine were the first non-bookkeeping use for writing we found.</p><p>But the human race had been kicking around for a million years before we worked out how to do that. It’s a veritable blink of an eye.</p><p>It’s good to study, look at the history surrounding the faith. It’s good to meditate, to try to get to know God personally. It’s good to volunteer, to do what Jesus commanded us to do, to share and be generous with our brothers, especially the needy.</p><p>It’s good to read the Bible. Forget theology, just read it like a book, like a bedtime story that entertains and enlightens.</p><p>But you need to seek God. Put forth some kind of effort. God will notice and send you a sign He’s watching. And before you know it your life will be suffused by Him.</p>

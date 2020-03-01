@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why does religion inspire the attitude that the belief they are following is the only correct one, and every one else is wrong?
+date: 2017-11-26
+---
+
+<p>The reason why you see this so often dates back to prehistory and the very issuance of humanity.</p><p>Religion solves a very important problem that cognition introduced to the human race. Why should we cooperate with each other, and who should be in charge? The answer could only ever be, “whoever is the strongest,” as animals solved this issue, but there’s a problem with that, it’s that the weak together could easily overpower the strong.</p><p>Without an <b>external</b> reason for people to cooperate with each other, humans would never rise above primitive tribal societies. They’d never build the pyramids. Civilization would never be possible.</p><p>What was that reason? Whatever could be the reason? There were none. People had to invent them. And they had to invent reasons why you had to follow them. And other people had to <b>believe</b> them.</p><p>Those invented reasons, believed in by many, got passed down and remixed and riffed on and refined and translated and recounted and written down and debated on. For hundreds of thousands of years. Today we call those beliefs religions.</p><p>So much of what made religion salient and believable by primitive humans has gone away. But what hasn’t changed is the need for humans to feel part of an in-group. Religion still fulfills that function phenomenally.</p>

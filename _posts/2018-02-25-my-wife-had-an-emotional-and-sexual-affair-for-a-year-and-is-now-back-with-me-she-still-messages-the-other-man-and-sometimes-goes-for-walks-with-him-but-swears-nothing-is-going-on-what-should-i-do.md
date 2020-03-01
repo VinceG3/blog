@@ -1,0 +1,7 @@
+---
+layout: post
+title: My wife had an emotional and sexual affair for a year and is now back with me. She still messages the other man and sometimes goes for walks with him but swears nothing is going on. What should I do?
+date: 2018-02-25
+---
+
+<p>Find a new relationship with someone whose attention isn’t divided.</p><p>Oh yeah. And a divorce. Amazed you didn’t do that earlier.</p><p>Since you’re not going to do that, if you were you would have already done it, then your next step is to understand why you didn’t do the sane thing. What about you is holding on to this person who won’t, who can’t meet your needs?</p><p>You can’t change other people. There is no path of action that will transform your wife from someone who seeks emotional comfort in someone else to someone who seeks emotional comfort in you. Those barriers are too thick to overcome.</p><p>What you can change is yourself. I’m not saying it’s easy, but you can turn yourself into somebody who won’t settle for anything other than a relationship that works for you.</p><p>If you don’t or can’t change, then you will be stuck forever with this woman, and her with you. I don’t know what your relationship or situation is like, but my guess is that your marriage wasn’t all that great before she started looking elsewhere to get <b>her</b> needs met.</p><p>So you need to face up to the fact that your marriage sucks, it’s <b>always</b> sucked, and it always will suck. You took a relationship that should have ended and instead put a ring on it. Time to wise up.</p>

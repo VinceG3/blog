@@ -1,0 +1,7 @@
+---
+layout: post
+title: What are your thoughts and opinions on the philosophical aspect of Buddhism?
+date: 2017-11-29
+---
+
+<p>That if you live in the West, you’ve almost certainly been fed a bag of lies by the self-help industry. Buddhism is a religion, not a philosophy. It’s in the best monetary interests of authors and gurus to make Eastern religion palatable to Westerners dissatisfied with their own religions and culture.</p><p>So they pick and choose and edit and adapt and synthesize Buddhism until you darn well can’t recognize it anymore. Buddhism has a <b>long</b> history in Asia, and when you go look at that history, it looks just like the history of a <i>religion</i>. Not of a philosophy. Philosophies are born and die in the academy. Religions are borne amongst the lay, unwashed masses. Buddhism has 520 million adherents, it’s the fourth largest religion, that’s as lay and as unwashed as it gets.</p><p>Buddhist philosophy is theology. Just like Christian philosophy. The two are completely inseparable, religious philosophy and theology, they are one in the same, there is no daylight between Buddhist philosophy and Buddhist theology. Westerners just get fooled into thinking that because it doesn’t have a sky father god, that it’s somehow not religion.</p><p>They got fooled because they don’t see the real Buddhism. They see the cutesy dumbed down version. The version best fit for selling millions of books.</p>

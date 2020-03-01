@@ -1,0 +1,7 @@
+---
+layout: post
+title: What happens to philosophical thought if there is an afterlife?
+date: 2018-09-04
+---
+
+<p>I often think about how philosophy would ‘function’ in the afterlife. My suspicion is that it doesn’t really change. What makes philosophy difficult is context. Things that are true in one context stop being true in others.</p><p>Take the field of ethics. What about the act of killing someone makes it unethical? Well the Bible makes the distinction of <i>murder</i> being sinful, not just killing. What constitutes murder? There’s a great body of English common law that articulates the distinctions, but those distinctions will vary across cultures and civilizations.</p><p>If you wanted to, you could, in the afterlife, discuss the differences, and the societies that created those differences. Drilling into the finer points between what’s considered self-defense and why.</p><p>Naturally, without real bodies and lives to lose, and no way to clarify the results of those debates back to the material world where people still have those kinds of stakes at play, those debates would remain hypothetical.</p><p>But they don’t really have to be. We can create realities in the afterlife, same as we can create realities here. Created realities have their agents and any time you have agents interacting, you have ethics. What are the ethics behind raiding activity in an adventure MMORPG?</p><p>Philosophical debates can attempt to illuminate broad, overarching parallels that can help to clarify situations you can find yourself in in the afterlife.</p>

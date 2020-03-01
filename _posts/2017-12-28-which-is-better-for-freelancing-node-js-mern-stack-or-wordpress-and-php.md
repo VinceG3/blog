@@ -1,0 +1,7 @@
+---
+layout: post
+title: Which is better for freelancing: Node.js (MERN stack) or WordPress and PHP?
+date: 2017-12-28
+---
+
+<p>The only freelancer I know, a guy I contracted for when I first started doing this for money, used WordPress. Nowadays he’s getting into React on top of WordPress.</p><p>The difference between the two stacks is is essentially <i>platform</i> vs <i>framework</i>. Platforms give you a lot more to work with than frameworks do, you build platforms with frameworks.</p><p>When you freelance, your focus has to be on your client. You just don’t have time to reinvent the wheel. So as a result you tend to specialize in one stack and use it to solve all your problems. This is how WordPress came to be the kitchen sink platform it is today. It’s not ideal for all the use cases that people use it for, but when you weigh that against the time it would take you to learn a new platform, it’s much easier to just roll forward with WordPress.</p><p>Consultants, on the other hand, have the time to reinvent wheels. At least, they should. They chase larger clients with bigger pockets. You’re still owning the relationship with your client, but there’s less pressure for immediate results, and you’re responsible for a much smaller piece of their business. It’s up to your client to integrate the solution you build into their business.</p><p>If you want to be a consultant, learn MERN. If you want to be a freelancer, go with WordPress.</p>

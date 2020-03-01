@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why can’t I stand having attractive female friends?
+date: 2017-05-21
+---
+
+<p>The simple answer to this is because nature gave you a sex drive and you haven’t yet figured out how to overcome it. Without a sex drive, the human race would have died out a long time ago. Unfortunately it gets in the way of normal relating.</p><p>That said, we do have free will and so we can choose to ignore our sex drives if we want. It never really goes away, but you can get better and better at controlling it over time. Some people even learn to harness and control it.</p><p>If you want to keep a female friend that is attractive, there’s just no getting around the necessity for learning how to control your sex drive. It’s unrealistic to expect her to “help you out” with it, in fact that would only exacerbate the problem of your sex drive getting in the way of normal friendship-type relating.</p><p>My two best friends are female. One I am very attracted to, and the other I’m not attracted to at all, though she’s a pretty nice-looking lady, I just don’t feel that animal spark for. I don’t really have a strong sex drive so I find it easy to make and keep female friends. But it’s not non-existent so it does get in the way from time to time.</p><p>Women do often marry their best guy friends, don’t think that learning how to control your sex drive is going to condemn you to a life of dry dick.</p>

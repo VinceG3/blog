@@ -1,0 +1,7 @@
+---
+layout: post
+title: Why do I feel pity for people that still believe in God?
+date: 2017-04-30
+---
+
+<p>Because you think you’re smarter than they are. You don’t understand what it is or what it means to be spiritual, so your brain has lumped it into the same category as people who can’t dress or feed themselves.</p><p>You asked the question because of something called cognitive dissonance. Your beliefs don’t quite square together nicely so you are looking for justification or at least validation.</p><p>When I was a wee lad I called myself an atheist. I thought agnostics were being wishy-washy and that theists were at best misguided, at worst stupid. It took me 10 years to see the error of my ways. I found lots of validation online, as much validation as I wanted or needed.</p><p>But I never much cared for crowd wisdom. I joined a Wiccan coven when I was 20, partly out of boredom and partly out of curiosity. It’s easy to see why people would think of Christians as stupid, less to think about people who decided to make up their own religion.</p><p>I never really converted but I came out of that experience with a lot less pointless self-assurance than I started it with. It took me many more years to find spirituality myself and about a year after that I finally realized that I believed in God. It’s my belief, one I carefully constructed to suit my needs. It’s as good as anybody else’s God.</p>

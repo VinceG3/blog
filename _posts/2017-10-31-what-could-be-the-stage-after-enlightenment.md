@@ -1,0 +1,7 @@
+---
+layout: post
+title: What could be the stage after enlightenment?
+date: 2017-10-31
+---
+
+<p>Enlightenment can be seen as the cure for a particular disease of the mind. The disease of ego-identification, that causes all suffering. So seeing enlightenment as a “stage” is misinterpreting things. What’s the next stage after curing cancer?</p><p>But there is something deeper than enlightenment and consciousness to attune to. Beingness itself. You can start with what it means to be human. With relinquishment of the actual need to be human, you can see humans afresh with a lucid perspective.</p><p>What would it mean to be unconnected from your senses? What would it mean to have different senses than the ones you have? Would it affect the enlightenment you currently possess?</p><p>What does it mean to exist? Can you exist without a body? What are the elements of your existence? Can you put them all into a small number of groups? Can you think of anything you missed out of those groups?</p><p>What does it mean to evolve? Can you break down the process of evolution into stages of a cycle? Can you apply this reasoning to yourself and so watch yourself evolve? Can you relate these steps to how nature itself evolves?</p><p>Difficult to inquire on these questions before you are enlightened, the self gets in the way. But once the self gets out of the way, one can directly inquire on them, and so come to embody even higher truths than the classic Buddhist triad of suffering, impermanence, and no-self.</p>

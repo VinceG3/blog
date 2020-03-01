@@ -1,0 +1,7 @@
+---
+layout: post
+title: All of a sudden, I am not cutting it at work, and my boss is proceeding like he wants to fire me. What should I do?
+date: 2017-04-24
+---
+
+<p>Realize that your situation has little to do with you and is probably political. Being political means people with more power than you have deemed that firing you a solution to a problem. That he’s not giving you specifics means they are probably using you as a scapegoat. Happens all the time.</p><p>The way to fix these kinds of problems is before they start, by not being the kind of employee that would make a good scapegoat. That you didn’t see it coming usually means it’s too late. If you have any other friends at the company you can ask them what’s going on.</p><p>You need to be planning towards the future. Start putting out resumes <b>today</b>. Do your best on your interviews and take the first job that you get offered that you can support yourself with. You should have started doing this immediately after getting the bad yearly review.</p><p>You can try to follow the letter of the PIP but they’re probably going to fire you anyway. Firing you with cause gives them the ability to deny you unemployment should you choose to file for it. If you can document that you’ve followed the PIP to the letter and they fired you anyway then if you get denied for unemployment you can appeal.</p><p>Let this be a lesson to not get too complacent at your job. You can’t just do your job, you also have to be aware of what’s going on at your company and keep communicating with the higher ups.</p>

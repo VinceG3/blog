@@ -1,0 +1,7 @@
+---
+layout: post
+title: Do feminist girls struggle with dating in high school because guys find them less attractive due to their ideology?
+date: 2017-04-29
+---
+
+<p>I interacted with a lovely girl who was in college a few years ago. One of the things that really attracted me to her was the fact that she was well-read and called herself feminist. I meet a lot of women, even a lot of intelligent ones, but I rarely run into one who is philosophical. She was absolutely gorgeous too.</p><p>I asked her out and she said yes. We were never able to coordinate a date so it never got off the ground. Looking back, I can say that we were both fairly awkward about the whole thing. Did her feminist views play a role? I’d say very probably. I could tell she was operating off of perspectives and principles and understandings about men that were not true, at least in my case.</p><p>But I’d say the real cause of the awkwardness between us was our past experiences regarding the other sex. I don’t know if it constituted trauma in her case, she seemed to be the resilient sort that could walk through fire and come out only mildly injured. Her views definitely did not turn me off, I would have enjoyed spending a long evening with her exploring and discussing them.</p><p>But it wasn’t to be.</p><p>In high school, I’d imagine one’s philosophical views would be the least of your worries, from a dating perspective.</p>

@@ -1,0 +1,7 @@
+---
+layout: post
+title: How does a spiritually enlightened person view death?
+date: 2017-05-03
+---
+
+<p>First things first, I consider myself enlightened so take this how you will.</p><p>At some point in my life, I found myself ‘connected’ with my soul. It wasn’t any kind of mystical experience, but rather a realization that my mind is just a continuation of perhaps billions of past lives, I can’t place a fix on an order of magnitude but billions feels as good as any.</p><p>As I settled into this realization, I realized death is just another form of what’s happening to us all the time in various ways. We sleep then we wake up. We make new memories and lose old ones. Our lives change and we start new chapters.</p><p>Death is just one more of these.</p><p>Even if none of my musings were correct and all consciousness were simply obliterated on death of the body, I would not be afraid of it. I faced that possibility long before I ever realized I was enlightened and am, like all humans enlightened or otherwise, the culmination of an unimaginable amount of evolution. I was unafraid of oblivion then and I am similarly unafraid of it now.</p><p>Despite that, I find physical death wasteful, and would like to live forever. I think it would be fun and challenging. I think I have a fairly decent shot at it, and if I’m really as enlightened as I think I am, I put myself here in this time and age specifically to take advantage of life extension technology. I plan to be cryogenically preserved if and when the time comes.</p>

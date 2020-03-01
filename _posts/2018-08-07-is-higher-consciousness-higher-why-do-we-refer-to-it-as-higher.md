@@ -1,0 +1,7 @@
+---
+layout: post
+title: Is higher consciousness higher? Why do we refer to it as higher?
+date: 2018-08-07
+---
+
+<p>I’ll answer the easier question first. We call higher consciousness higher because it’s closer to God. We use both types of consciousness, but the one we use more ‘directly’ is more clearly separated from God than the higher one.</p><p>As to whether it’s actually higher or not, well, that depends on your perspective. Certainly it is in every sense that we can think of it. Our higher consciousness exists to serve us, it’s totally focused on us, these weird little bags of flesh that want silly things and do ugly things like fart and break our promises. In the sense of ‘taking the high road’, our higher consciousness is about as high as it gets.</p><p>We’re a lot like pets. We just have different kinds of leashes. Higher consciousness loves us like we love Fluffles, and want to keep us safe and sound and away from big fast dangerous cars and out of nasty disgusting things like the cigarette butts on the ground, which we will happily start chewing on just because we can.</p><p>My current running theory is that higher consciousness is what we become after we die, eventually. You’ll get some time in an afterlife where you can continue separation from God and do whatever you want. Eventually that’ll get old, and your agency will disintegrate, joining the collective higher consciousness of your next incarnation.</p>
